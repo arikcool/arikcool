@@ -103,6 +103,4 @@ I'm interested in **engineering internships, software engineering placements and
 
 ## Connect
 
-**LinkedIn:** [Add your LinkedIn profile]
-
-**Email:** [ariksubedi2019@gmail.com](mailto:ariksubedi2019@gmail.com)
+**LinkedIn:** linkedin.com/in/arik-subedi-a0002b324
